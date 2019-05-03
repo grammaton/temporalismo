@@ -21,7 +21,7 @@ può esprimere il proprio pensiero per quanto astratto, o tradurre le proprie
 ossessioni…    
 *Alexandre Astruc*
 
-Ma se è vero che è solo il film narrativo a rispondere alle esigenze del pubblico,
+Se è vero che è solo il film narrativo a rispondere alle esigenze del pubblico,
 almeno a livello di grandi masse, è tuttavia chiaro che il problema è reversibile,
 dato che il gusto del pubblico è stato appunto educato alla narratività del cinema.
 La questione, allora, non si fa più solo estetica o linguistica, ma si fa
